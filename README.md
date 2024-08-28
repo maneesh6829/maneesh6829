@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey there,I'm Maneesh S<br>I am currently pursuing B.E in AIML at VCET Puttur<br>I am interested  in vintage watches<br>
+Hey there,I'm Maneesh S<br>I am currently pursuing B.E in AIML at VCET Puttur<br>Interested  in vintage watches<br>
 
 
 ## 🌐 Socials:
